@@ -1,3 +1,3 @@
-# 20256_Vignesh-Kumarappan_CaseStudy - Updates
+# 20256_Vignesh-Kumarappan_CaseStudy
 
 
